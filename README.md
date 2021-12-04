@@ -1,0 +1,2 @@
+- 👋 Hi, I’m @SaladinLeSalamander
+- I'm looking forward to hone my passion. This quite exciting LMAO
